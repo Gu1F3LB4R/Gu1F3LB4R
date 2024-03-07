@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Gu1F3LB4R
 - 👀 I’m interested in ...LEARN CODE
-- 🌱 I’m currently learning ...Psychology and social engineering
-- 💞️ I’m looking to collaborate on ...One love
+- 🌱 I’m currently learning ... Psychology and social engineering
+- 💞️ I’m looking to collaborate on ... One love
 - 📫 How to reach me ... WhatsApp
 - 😄 Pronouns: ... HE
 - ⚡ Fun fact: ... A BORN COMEDIAN
